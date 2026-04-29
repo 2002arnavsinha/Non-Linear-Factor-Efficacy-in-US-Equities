@@ -1,0 +1,1 @@
+# Non-Linear-Factor-Efficacy-in-US-Equities
